@@ -1,0 +1,1 @@
+Confetti cake is a type of cake that has rainbow colored sprinkles baked into the batter. It is called confetti cake because when baked, the rainbow sprinkles melt into dots of bright color that resemble confetti. Typically the batter is either white or yellow to allow for a better visual effect. 
